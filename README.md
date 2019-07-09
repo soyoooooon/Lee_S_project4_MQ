@@ -11,4 +11,4 @@ Using CSS and HTML
 <s_lee77176@fanshaweonline.ca>
 
 ### Inspiration
-MMED - 1056 - Web development Trevor's class
+MMED - 1056 - Web development Trevooooooooooooor's class
